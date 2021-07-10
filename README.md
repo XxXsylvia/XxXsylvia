@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @XxXsylvia
+- 👋 Hi, I’m @XxXsylvia but call me kati or alena 
 - 👀 I’m interested in ...Gaming hope I meet ne friends!
 - 🌱 I’m currently learning ...Idk yet
 - 💞️ I’m looking to collaborate on ...??
